@@ -1,1 +1,1 @@
-# Valida-IE-de-Goi-s
+# Valida-IE-de-Goiás
